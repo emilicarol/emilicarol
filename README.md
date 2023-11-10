@@ -12,5 +12,7 @@
 ### Você pode entrar em contato comigo🫀
 
 @emilicarolyne
+![](https://img.shields.io/badge/JavaScript-323330?style=for-the-badge&logo=javascript&logoColor=F7DF1E)
+   
 
-![](https://tenor.com/view/spongebob-spongebob-squarepants-gif-7334446791779913232)                                                                                                  
+
