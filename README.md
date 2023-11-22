@@ -12,7 +12,7 @@
 ### Você pode entrar em contato comigo🫀
 
 @emilicarolyne
-![](https://tenor.com/pt-BR/view/wink-bien-blue-emoticon-gif-17531441)
+![](https://tenor.com/pt-BR/view/spongebob-heart-throwing-hearts-in-love-gif-15770320)
    
 
 
