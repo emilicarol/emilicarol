@@ -10,8 +10,9 @@
 
 
 ### Você pode entrar em contato comigo🫀
-
 @emilicarolyne
+
+
 ![](https://media.tenor.com/oTTrZ7WOzF0AAAAC/love-languages.gif)
    
 
